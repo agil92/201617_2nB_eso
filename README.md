@@ -4,5 +4,5 @@ El meu primer projecte
  Aquí hi haura més imformació
   
   
- Estimats pare i mare 
+
   
